@@ -1,7 +1,7 @@
-# drinking 
+# the walking escape
 
-jogo pra ficar muito doido 
+work together to find your way out
 
 # introdução
 
-tudo começa com todos muito bem 
+post apocalypse game where you and your friend have to escape a place without getting bit by a walker 
